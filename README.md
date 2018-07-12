@@ -7,13 +7,13 @@
 ## ต้องการรายละเอียดเพิ่ม หรือ ต้องการ ปรึกษาการทำ โปรเจคแอนดรอยด์
 ### ติดต่อมาสเตอร์ อึ่ง เลย ที่
 
-[![IMG_6065.jpg](https://s33.postimg.cc/to4h06w1r/IMG_6065.jpg)](https://postimg.cc/image/blbe8z06z/)
+[![IMG_6065.jpg](https://s26.postimg.cc/kajrs6fbt/IMG_6065.jpg)](https://postimg.cc/image/7j5llo5jp/)
 
 https://www.facebook.com/android.Training.by.EWTC
 
 http://line.me/ti/p/XI-Ksj7Jzq
 
-[![Line-_QR.jpg](https://s33.postimg.cc/3skqh44jj/Line-_QR.jpg)](https://postimg.cc/image/prr54bldn/)
+[![Line-_QR.jpg](https://s26.postimg.cc/3zjnvvajt/Line-_QR.jpg)](https://postimg.cc/image/e9m2v40f9/)
 
 http://androidthai.in.th
 
