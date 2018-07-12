@@ -13,7 +13,7 @@ https://www.facebook.com/android.Training.by.EWTC
 
 http://line.me/ti/p/XI-Ksj7Jzq
 
-[url=https://postimages.org/][img]https://s26.postimg.cc/sst7wjw51/Line-_QR.jpg[/img][/url]
+[![Line-_QR.jpg](https://s26.postimg.cc/dwuoozv15/Line-_QR.jpg)](https://postimg.cc/image/mrvizijth/)
 
 http://androidthai.in.th
 
